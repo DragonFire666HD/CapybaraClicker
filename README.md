@@ -1,1 +1,2 @@
-DragonFire666HD.github.io
+<strong>DragonFire Productions</strong>
+</p> <ul><li><a href="https://dragonfire666hd.github.io/PrivacyPolicy.html" target="_blank" rel="noopener noreferrer">Capybara Clicker Privacy Policy</a></li><li><a href="https://dragonfire666hd.github.io/AppPrivacyPolicy.html" target="_blank" rel="noopener noreferrer">Minimal Meme Soundboard 2022 Privacy Policy</a></li><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----><!----></ul></div>
